@@ -6,4 +6,4 @@
 - ‧₊◜·° fave albums : kessoku band s/t
 - ‧₊◜·° any prns! 🏳️‍⚧️
 
-[!cat](https://i.imgur.com/Oo7XxoI.png)
+![cat](https://i.imgur.com/Oo7XxoI.png)
